@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Stark-msy
 - 👀 I’m interested in gaming
 - 🌱 I’m currently learning
-- 💞️ I’m looking to collaborate on
+- 💞️ I’m looking to collaborate on SNAPCHAT.COM
 - 📫 How to reach me mdsayeed5656@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: Be aware...Im ADDICTIVE 
